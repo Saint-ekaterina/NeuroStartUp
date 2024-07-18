@@ -19,4 +19,4 @@
 3. Низкая цена🌠
 
 
-![](https://get.wallhere.com/photo/abstract-3D-Abstract-futuristic-1705673.jpg)
+![](https://www.twice.com/wp-content/uploads/2019/11/blockchain_664131450-scaled.jpg)
