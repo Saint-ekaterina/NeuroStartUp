@@ -18,6 +18,6 @@
 2. Высокая скорость поиска🚀
 3. Низкая цена🌠
 
-![.](https://yandex.ru/images/search?from=tabbar&img_url=https%3A%2F%2Fwww.twice.com%2Fwp-content%2Fuploads%2F2019%2F11%2Fblockchain_664131450-scaled.jpg&lr=197&p=3&pos=22&rpt=simage&text=Картинка%20новейшие%20технологии)
+![.](https://yandex.ru/images/search?from=tabbar&img_url=https%3A%2F%2F4kwallpapers.com%2Fimages%2Fwallpapers%2Ffire-girl-particles-polygons-abstract-dark-4096x2304-5286.jpg&lr=197&p=16&pos=20&rpt=simage&text=картинка%20искусственный%20интеллект)
    
 
