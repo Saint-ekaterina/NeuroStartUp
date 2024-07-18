@@ -18,6 +18,6 @@
 2. Высокая скорость поиска🚀
 3. Низкая цена🌠
 
-![.](https://yandex.ru/images/search?from=tabbar&img_url=https%3A%2F%2F4kwallpapers.com%2Fimages%2Fwallpapers%2Ffire-girl-particles-polygons-abstract-dark-4096x2304-5286.jpg&lr=197&p=16&pos=20&rpt=simage&text=картинка%20искусственный%20интеллект)
-   
 
+
+![.](https://get.wallhere.com/photo/abstract-3D-Abstract-futuristic-1705673.jpg)
